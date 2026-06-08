@@ -16,3 +16,6 @@ https://pt.wikipedia.org/wiki/Leo_Fender
 https://pt.wikipedia.org/wiki/Leo_Fender
 https://intl.fender.com/pages/about-fmic?shpxid=dd9c1ebc-143d-46b3-83b1-848b8ccfac25
 https://musicosmos.com.br/75-anos-da-fender/
+
+link final
+https://notebooklm.google.com/notebook/e8e432f7-2f3e-439b-8919-2e5a0b0cb452
